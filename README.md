@@ -1,4 +1,4 @@
-## HI THERE \
+## HI THERE 
 I love to code \
 Working with new project is my passion \
 Want to know more ping me \
